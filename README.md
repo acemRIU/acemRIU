@@ -1,0 +1,2 @@
+acem has formed the Research and Innovation Unit. The Research and Innovation Unit plays a vital role in the further development of academic activities (including academic and research works) within the college, linking real-life activities in research. acem encourages students to cultivate an interest in research and make it a part of students’ life, beginning from small scale research work to moderate level, and to bigger projects to be accomplished in the future.
+
